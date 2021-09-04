@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Dramion
+- 👀 I’m interested in foreign languages, programming, networking, 3D modeling/CG, and electrical engineering.
+- 🌱 I’m currently learning everything...
